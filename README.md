@@ -1,3 +1,6 @@
+<img width="1536" height="1024" alt="147b5812-4d9f-4f09-96c9-b2ae849ffc99" src="https://github.com/user-attachments/assets/c2e9c7f8-d3f0-4417-8984-a0321e4b26eb" />
+
+
 # 🟦 Arc-Rides Big FPS Booster Windows
 
 ## 🟦 About
